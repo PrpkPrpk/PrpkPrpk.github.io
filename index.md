@@ -15,6 +15,6 @@ Just kidding. prpk.com is only a storyless domain name registered by my father 2
 
 Of course, none of these sites is available, because they came from me randomly typing on my keyboard as well. There are great sites like xkcd.com, and believe it or not, I discovered it through randomly typing on my keyboard when I was only 12!
 
-https://prpkprpk.github.io/HelloWorld/
 
-[HelloWorld][https://prpkprpk.github.io/HelloWorld/]
+
+[Read my first post](HelloWorld/)
