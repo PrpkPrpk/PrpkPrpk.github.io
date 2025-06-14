@@ -1,0 +1,8 @@
+---
+layout: post
+title: "The Last Radio"
+---
+“I definitely got to know about this well. No one will be able to stop this incredible crime, as their country is incredibly strong, and ours is weak. We have a strong naval force, the laser weapons are now raging on the top of our planet, and our soldiers will escape from their blood without stepping back for even a single inch. However, our story may come to an end. We are far from eliminating their tide-like spacecraft, and their missiles and aircraft could blow up everything in their sight. Not to mention their Sunday punch—the Dominator—if you prefer to call it, is inexorable.” The radio was fading in the dusk, mixed up with rustle and explosion. “The frontier is now being defeated, and our last soldiers are bleeding. Our fate is defined. Their soldiers will land on our planet within a few days, and for all residents, please be careful with the soldiers. Be nice to them even if they do not have a good-looking face. The run is now falling, and our empire as well. It is a shame that we couldn’t protect you all. But for now, please stay determined to live on. The meeting is postponed indefinitely, and, wish you all good luck.”
+
+The radio rustle told us that there was no signal, with the dusty radio station covered by a good blanket of the fallen sun. The dilapidated wall and the flying wall all signaling a bombard was now taking place right in the city. It was totally quiet, only the sparkling of the spaceship above the discarded city signaling the fall of the empire. Looking into a distant horizon, a flying giant was slowly approaching the devastating planet. 
+
